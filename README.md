@@ -1,3 +1,3 @@
 # realtime_crotch_mozaiq
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5TQ4fL6hdy0" frameborder="0" allowfullscreen></iframe>
+[![IMAGE ALT TEXT HERE](http://img.youtube.com/vi/5TQ4fL6hdy0/0.jpg)](http://www.youtube.com/watch?v=5TQ4fL6hdy0)
